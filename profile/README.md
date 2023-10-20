@@ -1,3 +1,1 @@
-# BDSM SYSTEMS
-
-Business Development Sales Marketing
+# Business Development Sales Marketing
